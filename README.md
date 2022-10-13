@@ -9,7 +9,7 @@ Karl Gambolputty de von Ausfern-schplenden-schlitter-crasscrenbon-fried-digger-d
 
 Another splendid update 
 
-EDIT
+EDIT!
 
 Joining Nato Status: Pending ...
 
