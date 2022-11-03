@@ -13,6 +13,8 @@ EDIT!
 
 "I cannot fiddle, but I can make a great state out of a small city" - Themistocles
 
+"After I'm dead I'd rather have people ask why I have no monument than why I have one" - Cato the Elder
+
 Joining Nato Status: Pending ...
 
 It's gonna take a while ...
