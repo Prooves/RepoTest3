@@ -11,6 +11,8 @@ Another splendid update
 
 EDIT!
 
+"I cannot fiddle, but I can make a great state out of a small city" - Themistocles
+
 Joining Nato Status: Pending ...
 
 It's gonna take a while ...
