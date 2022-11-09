@@ -13,6 +13,8 @@ EDIT!
 
 "I believe in coincidences. Coincidences happen every day. But I don't *trust* coincidences." - Elim Garak, to Bashir
 
+"Well, the truth is usually just an excuse for a lack of imagination." - Elim Garak, to Bashir
+
 "I cannot fiddle, but I can make a great state out of a small city" - Themistocles
 
 "After I'm dead I'd rather have people ask why I have no monument than why I have one" - Cato the Elder
