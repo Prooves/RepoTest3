@@ -15,6 +15,8 @@ EDIT!
 
 "Well, the truth is usually just an excuse for a lack of imagination." - Elim Garak, to Bashir
 
+"I lied. I cheated. I bribed men to cover the crimes of other men. I am an accessory to murder. But the most damaging thing of all... I think I can live with it. And if I had to do it all over again, I would. Garak was right about one thing, a guilty conscience is a small price to pay for the safety of the Alpha Quadrant." - Benjamin Sisko
+
 "I cannot fiddle, but I can make a great state out of a small city" - Themistocles
 
 "After I'm dead I'd rather have people ask why I have no monument than why I have one" - Cato the Elder
