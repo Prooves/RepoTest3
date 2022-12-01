@@ -11,6 +11,8 @@ Another splendid update
 
 EDIT!
 
+"Do you know what the sad part is, Odo? I'm a very good tailor." - Elim Garak, to Odo
+
 "I believe in coincidences. Coincidences happen every day. But I don't *trust* coincidences." - Elim Garak, to Bashir
 
 "Well, the truth is usually just an excuse for a lack of imagination." - Elim Garak, to Bashir
