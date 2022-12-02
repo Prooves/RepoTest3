@@ -11,6 +11,8 @@ Another splendid update
 
 EDIT!
 
+"Once you have their money, you never give it back." - 1st Ferengi rule of acquisition.
+
 "Do you know what the sad part is, Odo? I'm a very good tailor." - Elim Garak, to Odo
 
 "I believe in coincidences. Coincidences happen every day. But I don't *trust* coincidences." - Elim Garak, to Bashir
