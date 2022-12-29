@@ -25,6 +25,8 @@ EDIT!
 
 "After I'm dead I'd rather have people ask why I have no monument than why I have one" - Cato the Elder
 
+"Ceterum autem censeo Carthaginem esse delendam" - Cato the Elder
+
 Joining Nato Status: Pending ...
 
 It's gonna take a while ...
