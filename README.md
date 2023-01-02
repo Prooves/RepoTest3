@@ -11,7 +11,7 @@ Karl Gambolputty de von Ausfern-schplenden-schlitter-crasscrenbon-fried-digger-d
 
 Another splendid update 
 
-EDIT!
+EDIT! EDIT!
 
 "Once you have their money, you never give it back." - 1st Ferengi rule of acquisition.
 
