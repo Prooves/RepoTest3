@@ -9,6 +9,8 @@ Sjung, o gudinna, om vreden, som brann hos Peliden Achilles olycksdiger, till tu
 
 Karl Gambolputty de von Ausfern-schplenden-schlitter-crasscrenbon-fried-digger-dingle-dangle-dongle-dungle-burstein-von-knacker-thrasher-apple-banger-horowitz-ticolensic-grander-knotty-spelltinkle-grandlich-grumblemeyer-spelterwasser-kurstlich-himbleeisen-bahnwagen-gutenabend-bitte-ein-nürnburger-bratwustle-gerspurten-mitzweimache-luber-hundsfut-gumberaber-shönendanker-kalbsfleisch-mittler-aucher von Hautkopft of Ulm - Monty Python
 
+Wi nøt trei a høliday in Sweden this yer?
+
 Another splendid update 
 
 EDIT! EDIT! EDIT!
